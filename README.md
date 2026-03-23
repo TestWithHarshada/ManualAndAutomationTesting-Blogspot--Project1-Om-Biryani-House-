@@ -4,6 +4,3 @@
 
    - 🌐 [Visit Om Biryani House Website](https://ombiryanihouse.wordpress.com/)
 
-          - Blogspot Link -
-     
-   - 🌐 - [Visit Om Biryani House Blog Link](https://ombiryanihouse2009.blogspot.com/)
